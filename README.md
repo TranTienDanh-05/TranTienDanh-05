@@ -5,4 +5,4 @@
   interesting projects.
   📫 Connect With Me
 - Gmail : trandanh158@gmail.com
-- LinkedIn / Portfolio:
+- LinkedIn / Portfolio: https://www.linkedin.com/in/tr%E1%BA%A7n-danh-4827793a8/
